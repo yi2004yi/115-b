@@ -15,7 +15,8 @@
 [Torrow X Together YouTube](https://www.youtube.com/channel/UCtiObj3CsEAdNU6ZPWDsddQ)
 
 #### 崔秀彬
-<img width="2544" height="3392" alt="11" src="https://github.com/user-attachments/assets/1d083402-53fd-42a5-bb61-c82523f0cc8b" />
+<img src="https://github.com/user-attachments/assets/1d083402-53fd-42a5-bb61-c82523f0cc8b" width="300" />
+
 
 &nbsp;
 
