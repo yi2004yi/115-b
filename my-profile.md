@@ -12,7 +12,7 @@
 *船到橋頭自然直*
 
 #### 網站連結
-[Torrow X Together YouTube](https://www.youtube.com/channel/UCtiObj3CsEAdNU6ZPWDsddQ)
+[TOMORROW X TOGETHER YouTube](https://www.youtube.com/channel/UCtiObj3CsEAdNU6ZPWDsddQ)
 
 #### 崔秀彬
 <img src="https://github.com/user-attachments/assets/1d083402-53fd-42a5-bb61-c82523f0cc8b" width="300" />
